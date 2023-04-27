@@ -1,0 +1,1 @@
+# self-set-reading-yaprak-test-20-sayfa-32
